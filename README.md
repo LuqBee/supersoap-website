@@ -1,5 +1,5 @@
 # supersoap
 
-List of unblocked games
+- List of Games
 
 By: Luke Beesley
